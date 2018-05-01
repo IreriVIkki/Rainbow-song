@@ -1,2 +1,2 @@
 # Rainbow-song
-A song about rainbows
+A song about rainbows, yeah!
